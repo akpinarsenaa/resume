@@ -1,0 +1,2 @@
+# resume
+cuguli dinlemeyi severim
